@@ -8,7 +8,7 @@ I am lucasterly :D
 - Watch this anime is so good [Anime](https://ww1.animeflv.cc/anime/charlotte)
 - 💭 Contact me on discord [Discord](https://discord.gg/N9snPKX5AK)
 
-## Contacto
+## Contact
 
 - [Xbox](https://account.xbox.com/es-es/Profile?xr=mebarnav&rtc=1)
 - [Nintendo](https://www.nintendo.com/)
