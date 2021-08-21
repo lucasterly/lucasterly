@@ -4,8 +4,8 @@
 
 I am lucasterly :D
 
-- 🚀 Im working in this [Browser](https://github.com/Incognito-browser/Incognito)
-- Watch this anime is so good [Anime](https://ww1.animeflv.cc/anime/charlotte)
+- 🚀 [???](https://copilot.github.com/)
+- Follow me 
 - 💭 Contact me on discord [Discord](https://discord.gg/N9snPKX5AK)
 
 ## Contact
