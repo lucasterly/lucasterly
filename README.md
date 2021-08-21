@@ -6,7 +6,7 @@ I am lucasterly :D
 
 - 🚀 [???](https://copilot.github.com/)
 - Follow me 
-- 💭 Contact me on discord [Discord](https://discord.gg/N9snPKX5AK)
+- 💭 Contact me on [Discord](https://discord.gg/N9snPKX5AK)
 
 ## Contact
 
